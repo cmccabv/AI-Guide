@@ -52,7 +52,7 @@
 
 🧗‍♀️✅🔑 [BAI Chat](https://chat.theb.ai/)
 
-🧗‍♀️✅🔑 [Chat For AI](https://chatforai.com/)
+🧗‍♀️✅🔑 [Chat For AI](https://www.53na.com/)
 
 🧗‍♀️✅🔑 [Fast GPT](https://fastgpt.app/)
 
@@ -166,7 +166,7 @@
 
 ### 🕸️ 浏览器插件
 
-🧗‍♀️ [Detect GPT](https://www.thomas.io/detect-gpt)（实时检查内容真实性）
+🧗‍♀️ [Detect GPT](https://www.gccbaike.com/category/ai%e6%8a%80%e6%9c%af)（实时检查内容真实性）
 
 🧗‍♀️ [Fluentify](https://www.fluentify.io/)（划字提问）
 
@@ -194,7 +194,7 @@
 
 🚴‍♂️🔐 [copyai](https://www.copy.ai/)（营销内容）
 
-🧗‍♀️🔐 [SEO GPT](https://seovendor.co/)（网站SEO）
+🧗‍♀️🔐 [SEO GPT](https://www.efx6.com/category/new-car)（网站SEO）
 
 💰🔐 [Yarnit](https://www.yarnit.app/)（PPT或海报）
 
